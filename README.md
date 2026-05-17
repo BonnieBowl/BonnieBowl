@@ -1,6 +1,8 @@
-<img width="600" height="310" alt="Shiranui (Yumekuro)__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/1f142ba7-3169-4b1f-82dd-4205e09cdf64" />
+<img width="2048" height="880" alt="Shiranui_sun__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/f128dd84-0dba-4e4f-b0ba-86817780ad4f" />
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&pause=1000&color=F79736&width=435&lines=%22-If+it's+okay%2C+won't+you+leave+it+to+me%3F+I'm+pretty+confident+in+my+god%22)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&pause=1000&color=F79736&width=435&lines=%22if+its+okay%2C+wont+you+leave+it+to+me%3F+I'm+pretty+confident+in+my+god.%22)](https://git.io/typing-svg)
+
+<img width="2048" height="880" alt="Shiranui_moon__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/9f87402a-1c38-426c-bf36-da71b853f395" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&duration=1&pause=1000&color=F79736&width=435&lines=Basic+dni+criteria+%2B+under+13+dni)](https://git.io/typing-svg)
-<img width="735" height="315" alt="Shiranui (Yumekuro)  - Yume Shokunin to Wasureji no Kuroi Yousei - Image by GCREST #3691891 - Zerochan Anime Image Board__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/86ec03f0-78c9-4103-92e4-e6267fa6a704" />
