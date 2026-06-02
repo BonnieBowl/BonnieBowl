@@ -1,8 +1,10 @@
-<img width="2048" height="880" alt="Shiranui_sun__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/f128dd84-0dba-4e4f-b0ba-86817780ad4f" />
+  <img width="589" height="788" alt="_ (18)__fliter--sea__channel--all__mode--screen-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/0b5f43fd-631e-4b7d-8d12-671314474cc9" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&size=52&letterSpacing=large&duration=2000&pause=1000&color=F79736&width=1069&height=187&lines=%22if+its+okay%2C+wont+you+leave+it+to+me%3F+I'm+pretty+confident+in+my+god.%22)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&duration=1&pause=5000&color=49ABF7E4&center=true&repeat=false&width=435&lines=19)](https://git.io/typing-svg)
+ 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&duration=1&pause=5000&color=49ABF7E4&center=true&repeat=false&width=435&lines=infp-t+%2F+5w6+%2F+under+13+dni)](https://git.io/typing-svg)
+ 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&duration=1&pause=5000&color=49ABF7E4&center=true&repeat=false&random=true&width=435&lines=strawpage)](https://git.io/typing-svg) 
 
-<img width="2048" height="880" alt="Shiranui_moon__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/9f87402a-1c38-426c-bf36-da71b853f395" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&size=52&letterSpacing=large&duration=1&pause=1000&color=F79736&center=true&multiline=true&width=1069&height=187&lines=atabook.)](https://shiranui.atabook.org)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&duration=1&pause=5000&color=49ABF7E4&center=true&repeat=false&random=true&width=435&lines=atabook)](https://git.io/typing-svg)
